@@ -1,0 +1,1 @@
+As a Data Analyst, who is currently open to new roles I am passionate about anything and everything that can give us insight about life around us or even routine tasks that play an important role in our decision making process. 
